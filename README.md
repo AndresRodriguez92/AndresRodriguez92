@@ -1,4 +1,4 @@
-### Hola 👋 Gracias Bienvenido a mi perfil
+### Hola 👋 Bienvenido a mi perfil
 
 #### Ahora te cuento algo sobre mi:
 
